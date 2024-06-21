@@ -1,1 +1,1 @@
-Maximize the potential yield of your idle assets with our wallet. Coming soon! on **starknet**
+Maximize the potential yield of your idle assets. Coming soon! on **starknet**
